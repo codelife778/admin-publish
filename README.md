@@ -1,2 +1,2 @@
-预览地址:https://rushbora.github.io/admin-publish/
+预览地址:https://codelife778.github.io/admin-publish/
 
